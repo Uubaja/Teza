@@ -1,0 +1,2 @@
+# Teza
+Karena lebih indah
